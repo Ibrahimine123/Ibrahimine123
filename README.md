@@ -1,6 +1,8 @@
 ### Hello viewers
 ### I am Ibrahim Khan Provividing You Cracked softwares
-- 🔭 I’m currently working on ...
+- 🔭 I’m currently working on A Premium Account of Grammarly
+- 🌱 I’m currently learning All Programming Languages
+- 🤔 I’m looking for help with Hamza
 
 <!--
 **Ibrahimine123/Ibrahimine123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
