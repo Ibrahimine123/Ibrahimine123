@@ -1,5 +1,6 @@
 ### Hello viewers
 ### I am Ibrahim Khan Provividing You Cracked softwares
+- 🔭 I’m currently working on ...
 
 <!--
 **Ibrahimine123/Ibrahimine123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
