@@ -3,8 +3,9 @@
 https://www.mediafire.com/file/a3unic6mf6n9jib/Grammarly+Crack.mp4/file
 ### I am Ibrahim Khan Providing You Cracked softwares
 - Note : Real Eritor is Blueagler
-- 🌱 I’m currently learning All Programming Languages
-- 🤔 I’m looking for help with Hamza
+- 🌱 I’m currently learning All Programming Language
+- 👯 I’m looking to collaborate on Some projects with hamza
+- 
 
 <!--
 **Ibrahimine123/Ibrahimine123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
