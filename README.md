@@ -2,7 +2,7 @@
 ### If U need An Help To make Your Grammarly account Premimum You can Download This video
 https://www.mediafire.com/file/a3unic6mf6n9jib/Grammarly+Crack.mp4/file
 ### I am Ibrahim Khan Providing You Cracked softwares
-- 🔭 I’m currently working on A Premium Account of Grammarly
+- Note : Real Eritor is Blueagler
 - 🌱 I’m currently learning All Programming Languages
 - 🤔 I’m looking for help with Hamza
 
